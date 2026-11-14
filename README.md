@@ -96,7 +96,7 @@
 </a>
 </p>
 
-📧 Email: your-email@example.com
+📧 Email: karishmachilhate07@gmail.com
 
 ---
 
